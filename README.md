@@ -8,11 +8,13 @@
 #### • AI数字人、动作迁移、高清修复
 #### 更多功能陆陆续续上线中·····
 #### 小程序追光助手宝也上线中，点击：#小程序://追光AI/GpbalIJ64dGtRYq
-#### 体验网站：zgz.wazgz.com
+
+---
 
 **扫码进群 · 咨询源码与报价**
+<img width="396" height="396" alt="image" src="https://github.com/user-attachments/assets/986a8e18-44ba-4191-8ad9-b7e176ab7938" />
 
-<sub>进群请备注「GitHub + 超级爆款」，方便快速对接</sub>
+
 
 </div>
 
@@ -36,7 +38,6 @@
 ###### 8，一刀不剪辑，对每个素材实时去重，采用生物力学解决方案配合卷积对抗，防封级拉满！
 ###### 9，音画同步，语音触发视频文件名，即礼物或者带货视频直接播放，
 ###### 10，实时数字人，实时对口型，直播间安全性拉满
-# V+hgb9803（备注：“github”；否则不通过）
 
 
 ![15bb9ae63149d5658ee9f06263ca48c7](https://github.com/user-attachments/assets/432b9bb0-acad-4525-989d-6347706e09b2)
