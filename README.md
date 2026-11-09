@@ -10,7 +10,17 @@
 #### 小程序追光助手宝也上线中，点击：#小程序://追光AI/GpbalIJ64dGtRYq
 #### 体验网站：zgz.wazgz.com
 
-# V+hgb9803（备注：“github”；否则不通过）
+**扫码进群 · 咨询源码与报价**
+
+<sub>进群请备注「GitHub + 超级爆款」，方便快速对接</sub>
+
+</div>
+
+---
+
+## 追光系列其他产品
+
+追光软件中心打开飞书：https://ccnyxpyeyoo5.feishu.cn/wiki/EY4cw17LRiN0JBkQjnkcZxBOnVg?from=from_copylink
 
 
 # 无人直播 AI本地云端语音回复，全网支持主流平台：Tiktok/抖音/快手/视频号 /小红书/拼多多/美团/淘宝等。特色功能：一键实时去重、音画同步、数字人服务等,OEM贴牌，独立的验证系统，价格合适源码也出。
