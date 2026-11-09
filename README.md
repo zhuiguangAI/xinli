@@ -11,7 +11,7 @@
 
 ---
 
-**扫码进群 · 咨询源码与报价**
+**扫码进群 咨询**
 <img width="396" height="396" alt="image" src="https://github.com/user-attachments/assets/986a8e18-44ba-4191-8ad9-b7e176ab7938" />
 
 
